@@ -8,3 +8,4 @@ oldu sanırım
 
 
                                                             /hayat bize waikiki vay vay
+son denemeler başlasınnn :((()))
